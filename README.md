@@ -1,1 +1,1 @@
-# Super-deluxe
+# Deluxe
